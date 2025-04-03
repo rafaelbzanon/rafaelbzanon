@@ -1,4 +1,4 @@
-![img]([[https://wallpaperset.com/w/full/d/7/4/25542.jpg](https://br.pinterest.com/pin/437834395018314476/)](https://i.pinimg.com/originals/b4/e3/71/b4e371619042d1e80918d09904e90f7d.gif))
+![img](https://i.pinimg.com/originals/b4/e3/71/b4e371619042d1e80918d09904e90f7d.gif)
 
 <h1 align="center">Hi! I'm Rafael Zanon</h1>
 
