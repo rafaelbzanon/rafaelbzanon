@@ -1,4 +1,4 @@
-![img](https://i.pinimg.com/originals/b4/e3/71/b4e371619042d1e80918d09904e90f7d.gif)
+![img](https://i.pinimg.com/originals/c5/9a/d2/c59ad2bd4ad2fbacd04017debc679ddb.gif)
 
 <h1 align="center">Hi! I'm Rafael Zanon</h1>
 
